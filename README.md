@@ -1,3 +1,3 @@
 # skbayzid02
 ###### skbayzid02
-https://yt3.googleusercontent.com/3n8yfPVBmJgliWZvDyjdoUvjazIo25hbD_ZM8L0EXoB7QhTeSbJnxW0O23fbgfqeGx3ZzqFBow=w1060-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj
+https://yt3.googleusercontent.com/U5XHnunhpo2DdvTJr9_cauoYL4wRHn0tfmMBkAaeQ3jAPfidRTF66CwHL8aDJmMMeRIBaN6dTA=s160-c-k-c0x00ffffff-no-rj
